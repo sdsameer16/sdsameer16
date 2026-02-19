@@ -74,7 +74,7 @@
 ## 📫 Connect With Me
 
 📧 Email: sdsameerayaz2005@gmail.com  
-💼 LinkedIn: www.linkedin.com/in/sdsameer16
+💼 LinkedIn: www.linkedin.com/in/syedsameerayaz
   
 
 ---
